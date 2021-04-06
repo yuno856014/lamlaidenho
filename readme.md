@@ -1,1 +1,1 @@
-# Hoc co lắm tắm cũng ở truồng#
+# Dậy sớm để thành công#
